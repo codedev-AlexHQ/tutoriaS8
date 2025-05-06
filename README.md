@@ -1,5 +1,3 @@
-# tutoriaS8
-
 # ⚡🧠 Semana 8: Resolviendo Conflictos con Empatía y Respeto
 
 ## 💥 Parte 1: Mi reacción frente al conflicto
