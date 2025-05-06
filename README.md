@@ -27,6 +27,3 @@ La **escucha activa**, para realmente entender al otro antes de responder. Quier
 🧪 **Próximo conflicto que puedo practicar resolver mejor:**  
 Una conversación pendiente con un amigo con quien hubo una mala interpretación. Esta vez quiero hablar desde la calma, sin culpas ni defensas, solo con sinceridad y respeto 🤝🌟.
 
----
-
-🧠 *Aprender a resolver conflictos no es evitar el problema, sino transformarlo en una oportunidad para crecer y conectar mejor con los demás.* 💡💬
